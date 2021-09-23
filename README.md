@@ -1,4 +1,4 @@
-# Les Skins que j'utilise
+# Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
 ![](https://i.imgur.com/XZCntXs.jpeg)
 # [Bubble](https://www.mediafire.com/file/v17vjz1p2xx5uc2/Bubble.osk/file)
