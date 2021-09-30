@@ -7,3 +7,5 @@
 ![](https://i.imgur.com/C4yz3JE.jpeg)
 # [Monko](https://www.mediafire.com/file/5dfqvqzqetxuj7c/Monko.osk/file)
 ![](https://i.imgur.com/fTTpHIF.jpeg)
+# [Stella](https://www.mediafire.com/file/tk5nkmc0wxvzkkt/Stella.osk/file)
+![](https://i.imgur.com/LJ7Vxct.jpeg)
