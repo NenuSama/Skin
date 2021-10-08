@@ -9,3 +9,5 @@
 ![](https://i.imgur.com/fTTpHIF.jpeg)
 # [Stella](https://www.mediafire.com/file/tk5nkmc0wxvzkkt/Stella.osk/file)
 ![](https://i.imgur.com/LJ7Vxct.jpeg)
+# [Aristia](https://www.mediafire.com/file/lg8zynoynrg067o/Aristia.osk/file)
+![](https://i.imgur.com/8hdJU8q.jpeg)
