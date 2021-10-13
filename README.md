@@ -11,3 +11,5 @@
 ![](https://i.imgur.com/LJ7Vxct.jpeg)
 # [Aristia](https://www.mediafire.com/file/lg8zynoynrg067o/Aristia.osk/file)
 ![](https://i.imgur.com/8hdJU8q.jpeg)
+# [Seungwon Elaina](https://www.mediafire.com/file/emznpg6hgqp3cfu/Seungwon+Elaina.osk/file)
+![](https://i.imgur.com/UKYDDi3.jpeg)
