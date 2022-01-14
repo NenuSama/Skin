@@ -1,4 +1,6 @@
 # Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
+# [- 『BlooMoon』 - {New} Narxis edition](https://www.mediafire.com/file/99sx1o9y21wdqm2/-_%25E3%2580%258EBlooMoon%25E3%2580%258F_-_%257BNew%257D_Narxis_edition.osk/file)
+![](https://i.imgur.com/yetAxKU.jpeg)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
 ![](https://i.imgur.com/XZCntXs.jpeg)
 # [Bubble](https://www.mediafire.com/file/v17vjz1p2xx5uc2/Bubble.osk/file)
