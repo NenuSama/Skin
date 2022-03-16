@@ -1,6 +1,8 @@
 # Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
 # [- 『BlooMoon』 - {New} Narxis edition](https://www.mediafire.com/file/99sx1o9y21wdqm2/-_%25E3%2580%258EBlooMoon%25E3%2580%258F_-_%257BNew%257D_Narxis_edition.osk/file)
 ![](https://i.imgur.com/yetAxKU.jpeg)
+# [Erabareshi Kodomo](https://www.mediafire.com/file/polfiazzf7sjk0g/Erabareshi_Kodomo.osk/file)
+![](https://i.imgur.com/HQ6dsHd.jpeg)
 # [Seoul V10](https://t.co/TnkBO3bjZa)
 ![](https://i.imgur.com/Cqx79a3.jpeg)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
