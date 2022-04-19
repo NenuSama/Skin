@@ -3,7 +3,7 @@
 ![](https://i.imgur.com/yetAxKU.jpeg)
 # [Erabareshi Kodomo](https://www.mediafire.com/file/yusxyavqz9hnvn9/Kiwi.osk/file)
 ![](https://i.imgur.com/bEezpUg.jpeg)
-# [Erabareshi Kodomo](https://www.mediafire.com/file/polfiazzf7sjk0g/Erabareshi_Kodomo.osk/file)
+# [Kiwi](https://www.mediafire.com/file/polfiazzf7sjk0g/Erabareshi_Kodomo.osk/file)
 ![](https://i.imgur.com/HQ6dsHd.jpeg)
 # [Seoul V10](https://t.co/TnkBO3bjZa)
 ![](https://i.imgur.com/Cqx79a3.jpeg)
