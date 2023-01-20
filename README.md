@@ -1,6 +1,8 @@
 # Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
 # [- 『BlooMoon』 - {New} Narxis edition](https://www.mediafire.com/file/99sx1o9y21wdqm2/-_%25E3%2580%258EBlooMoon%25E3%2580%258F_-_%257BNew%257D_Narxis_edition.osk/file)
 ![](https://i.imgur.com/yetAxKU.jpeg)
+# [Bacon boi COLOURS](https://www.mediafire.com/file/gjk2tnl99ty27iq/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258Eblue%25E3%2580%258F.osk/file)
+![](https://i.imgur.com/rqXBdNn.jpeg)
 # [404 SkinNotFound v2](https://www.mediafire.com/file/tqectkonpgwttr5/404_SkinNotFound_v2.osk/file)
 ![](https://i.imgur.com/Kl8dCTW.jpeg)
 # [AriouTrois](https://www.mediafire.com/file/huhubxneh763cdh/AriouTrois.osk/file)
