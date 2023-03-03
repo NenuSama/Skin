@@ -3,6 +3,8 @@
 ![](https://i.imgur.com/yetAxKU.jpeg)
 # [Bacon boi COLOURS](https://www.mediafire.com/file/gjk2tnl99ty27iq/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258Eblue%25E3%2580%258F.osk/file)
 ![](https://i.imgur.com/rqXBdNn.jpeg)
+# [Suly V3](https://www.mediafire.com/file/owpbvg6cnwcwcez/Suly_V3.osk/file)
+![](https://i.imgur.com/ZMLd0Wr.jpeg)
 # [404 SkinNotFound v2](https://www.mediafire.com/file/tqectkonpgwttr5/404_SkinNotFound_v2.osk/file)
 ![](https://i.imgur.com/Kl8dCTW.jpeg)
 # [AriouTrois](https://www.mediafire.com/file/huhubxneh763cdh/AriouTrois.osk/file)
