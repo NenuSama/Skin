@@ -27,6 +27,8 @@
 ![](https://i.imgur.com/LJ7Vxct.jpeg)
 # [Aristia](https://www.mediafire.com/file/lg8zynoynrg067o/Aristia.osk/file)
 ![](https://i.imgur.com/8hdJU8q.jpeg)
+# [Aristia cursor white](https://www.mediafire.com/file/xommssdxaq0qnup/Aristia%2528Edit%2529_cursor_white.osk/file)
+![](https://i.imgur.com/qsQ7aSX.jpeg)
 # [Seungwon Elaina](https://www.mediafire.com/file/emznpg6hgqp3cfu/Seungwon+Elaina.osk/file)
 ![](https://i.imgur.com/UKYDDi3.jpeg)
 # [Raizen](https://www.mediafire.com/file/z90h4g3qgibgwtc/Raizen.osk/file)
