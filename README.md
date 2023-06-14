@@ -5,6 +5,8 @@
 ![](https://i.imgur.com/rqXBdNn.jpeg)
 # [Suly V3](https://www.mediafire.com/file/owpbvg6cnwcwcez/Suly_V3.osk/file)
 ![](https://i.imgur.com/ZMLd0Wr.jpeg)
+# [Fierymod v8](https://www.mediafire.com/file/xgvzzox87tj2gft/fierymod_v8.osk/file)
+![](https://i.imgur.com/4inYNoX.jpeg)
 # [404 SkinNotFound v2](https://www.mediafire.com/file/tqectkonpgwttr5/404_SkinNotFound_v2.osk/file)
 ![](https://i.imgur.com/Kl8dCTW.jpeg)
 # [AriouTrois](https://www.mediafire.com/file/huhubxneh763cdh/AriouTrois.osk/file)
