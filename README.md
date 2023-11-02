@@ -1,4 +1,6 @@
 # Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
+# [- zibi instafade](https://www.mediafire.com/file/lza1dfmo5zdpzum/-_zibi_instafade.osk/file)
+![](https://i.imgur.com/03E5V3p.jpeg)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
 ![](https://i.imgur.com/XZCntXs.jpeg)
 # [Selyu v2.3](https://www.mediafire.com/file/5sp89d5s019ldwk/-_ac_Selyu_v2.3.osk/file)
