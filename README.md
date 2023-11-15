@@ -1,6 +1,6 @@
 # Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
 # [- zibi instafade](https://www.mediafire.com/file/lza1dfmo5zdpzum/-_zibi_instafade.osk/file) 
-# [- zibi instafade (hitsound charlelee)](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade_%2528hitsound_charlelee%2529.osk/file) # C'est les mêmes skins avec des hitsounds différents
+# [- zibi instafade (hitsound charlelee)](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade_%2528hitsound_charlelee%2529.osk/file) (C'est les mêmes skins avec des hitsounds différents)
 ![](https://i.imgur.com/03E5V3p.jpeg)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
 ![](https://i.imgur.com/XZCntXs.jpeg)
