@@ -4,6 +4,8 @@
 ![](https://i.imgur.com/03E5V3p.jpeg)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
 ![](https://i.imgur.com/XZCntXs.jpeg)
+# [Arista(Edit++)](https://www.mediafire.com/file/qv4u66xrs4mwcdz/Aristia%2528Edit%252B%252B%2529.osk/file)
+![](https://i.imgur.com/fouw5IH.jpeg)
 # [Selyu v2.3](https://www.mediafire.com/file/5sp89d5s019ldwk/-_ac_Selyu_v2.3.osk/file)
 ![](https://i.imgur.com/o1cYIrU.jpeg)
 # [Rohulk 4.0 color](https://www.mediafire.com/file/yevck8pu6wpv3k5/Rohulk_4.0_color.osk/file)
