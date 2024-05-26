@@ -1,4 +1,4 @@
-# Les Skins que j'utilise (clique sur le titre du skin pour le télécharger)
+# Les skins que j'utilise (clique sur le titre du skin pour le télécharger)
 # [scylla_ninerik](https://www.mediafire.com/file/tjak4gtrlxyz1n3/scylla_ninerik.osk/file)
 ![](https://i.ibb.co/2ZG8TBJ/screenshot1655.jpg)
 # [Rafis DT](https://www.mediafire.com/file/yxzznaknt0mf272/Rafis_DT.osk/file)
