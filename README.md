@@ -1,5 +1,5 @@
 # osu! skins I use (click on the skin title to download it)
-# [- zibi instafade](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade.osk/file)
+# [- zibi instafade (MAIN SKIN)](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade.osk/file)
 ![](https://i.ibb.co/kgzvc8b/screenshot1672.jpg)
 # [Rafis DT](https://www.mediafire.com/file/yxzznaknt0mf272/Rafis_DT.osk/file)
 ![](https://i.ibb.co/bgjgjLb/screenshot1671.jpg)
