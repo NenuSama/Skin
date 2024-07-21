@@ -4,7 +4,7 @@
 # [Rafis DT](https://www.mediafire.com/file/yxzznaknt0mf272/Rafis_DT.osk/file)
 ![](https://i.ibb.co/bgjgjLb/screenshot1671.jpg)
 # [Monko](https://www.mediafire.com/file/5dfqvqzqetxuj7c/Monko.osk/file)
-![](https://i.imgur.com/fTTpHIF.jpeg)
+![](https://i.ibb.co/LSJ6jbh/screenshot1694.jpg)
 # [scylla_ninerik](https://www.mediafire.com/file/tjak4gtrlxyz1n3/scylla_ninerik.osk/file)
 ![](https://i.ibb.co/2ZG8TBJ/screenshot1655.jpg)
 # [-Xelle V1](https://www.mediafire.com/file/dhpxcd2y5806507/-_Xelle_V1.osk/file)
