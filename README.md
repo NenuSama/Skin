@@ -3,7 +3,7 @@
 ![](https://i.ibb.co/kgzvc8b/screenshot1672.jpg)
 # [-    #NaPiii's 《NM》 v7 color](https://www.mediafire.com/file/hsmic8uw3kifmsy/-_%2523NaPiii%2527s_%25E3%2580%258ANM%25E3%2580%258B_v7_color.osk/file)
 ![](https://i.ibb.co/3YTQR1G/screenshot1716.jpg)
-# [-    #NaPiii's 《NM》 v7](https://www.mediafire.com/file/ze493b8onw3xcj3/-_%2523NaPiii%2527s_%25E3%2580%258ANM%25E3%2580%258B_v7.osk/file)
+# [-    #NaPiii's 《NM》 v7 blue only](https://www.mediafire.com/file/ze493b8onw3xcj3/-_%2523NaPiii%2527s_%25E3%2580%258ANM%25E3%2580%258B_v7.osk/file)
 ![](https://i.ibb.co/QD28Zbq/screenshot1709.jpg)
 # [Rafis DT](https://www.mediafire.com/file/yxzznaknt0mf272/Rafis_DT.osk/file)
 ![](https://i.ibb.co/bgjgjLb/screenshot1671.jpg)
