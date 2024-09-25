@@ -18,7 +18,7 @@
 # [-Xelle V1](https://www.mediafire.com/file/dhpxcd2y5806507/-_Xelle_V1.osk/file)
 ![](https://i.imgur.com/yGYmxjk.jpeg)
 # [CharleLee](https://www.mediafire.com/file/x46743wtp91p8zi/CharleLee.osk/file)
-![](https://i.ibb.co/Kj9VKW8/screenshot1657.jpg)
+![](https://i.imgur.com/LeQPgsW.jpeg)
 # [- skinnmd - lewa - new](https://www.mediafire.com/file/mxtkiidcgrn20yj/-_skinnmd_-_lewa_-_new.osk/file)
 ![](https://i.imgur.com/9JIQeF5.jpeg)
 # [Arista(Edit++)](https://www.mediafire.com/file/qv4u66xrs4mwcdz/Aristia%2528Edit%252B%252B%2529.osk/file)
