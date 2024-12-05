@@ -1,6 +1,8 @@
 # osu! skins I use (click on the skin title to download it)
 # [- zibi instafade](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade.osk/file)
 ![](https://i.imgur.com/7H01SFh.jpeg)
+# [marianczello](https://www.mediafire.com/file/57vgqm320lkglen/marianczello.osk/file)
+![](https://i.imgur.com/nIUl8un.jpeg)
 # [-Xelle V1](https://www.mediafire.com/file/dhpxcd2y5806507/-_Xelle_V1.osk/file)
 ![](https://i.imgur.com/yGYmxjk.jpeg)
 # [-    #NaPiii's 《NM》 v7 color](https://www.mediafire.com/file/hsmic8uw3kifmsy/-_%2523NaPiii%2527s_%25E3%2580%258ANM%25E3%2580%258B_v7_color.osk/file)
