@@ -4,7 +4,7 @@
 # [- zibi instafade RED](https://www.mediafire.com/file/ntiorpqvtvgogmq/-_zibi_instafade_RED.osk/file)
 ![](https://i.imgur.com/8r6aHNK.jpeg)
 # [marianczello](https://www.mediafire.com/file/57vgqm320lkglen/marianczello.osk/file)
-![](https://i.imgur.com/nIUl8un.jpeg)
+![](https://i.imgur.com/GCgVg5J.jpeg)
 # [-    #NaPiii's 《NM》 v7 color](https://www.mediafire.com/file/hsmic8uw3kifmsy/-_%2523NaPiii%2527s_%25E3%2580%258ANM%25E3%2580%258B_v7_color.osk/file)
 ![](https://i.imgur.com/Nb2Qt7q.jpeg)
 # [-    #NaPiii's 《NM》 v7 blue only](https://www.mediafire.com/file/ze493b8onw3xcj3/-_%2523NaPiii%2527s_%25E3%2580%258ANM%25E3%2580%258B_v7.osk/file)
