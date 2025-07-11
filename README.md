@@ -1,4 +1,5 @@
-# osu! skins I use (27 skins in total) (click on the skin title to download it)
+# osu! skins I use (29 skins in total but zibi instafade is my main skin) 
+click on the skin title to download it
 # [- zibi instafade](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade.osk/file)
 ![](https://i.imgur.com/7H01SFh.jpeg)
 # [marianczello](https://www.mediafire.com/file/57vgqm320lkglen/marianczello.osk/file)
