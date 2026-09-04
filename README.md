@@ -2,7 +2,7 @@
 # Click on the skin title to download it
 # [1 | - zibi instafade](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade.osk/file)
 ![](https://i.imgur.com/7H01SFh.jpeg)
-# [2 | zibi instafade V2](https://www.mediafire.com/file/tj55396elg0ca62/-_zibi_instafade_V2.osk/file)
+# [2 | - zibi instafade V2](https://www.mediafire.com/file/tj55396elg0ca62/-_zibi_instafade_V2.osk/file)
 ![](https://i.ibb.co/jk2GkWX0/screenshot1662.jpg)
 # [3 | marianczello](https://www.mediafire.com/file/57vgqm320lkglen/marianczello.osk/file)
 ![](https://i.imgur.com/GCgVg5J.jpeg)
