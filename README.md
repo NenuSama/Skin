@@ -1,4 +1,4 @@
-# osu! skins I use (31 skins in total but zibi instafade, zibi instafade V2 and zibi fade is my mains skins) 
+# Nenu's osu! skins (31 skins in total - The first three zibi are my main skins.) 
 # Click on the skin title to download it
 # [1 | - zibi instafade](https://www.mediafire.com/file/kbcqe83nvz3adbn/-_zibi_instafade.osk/file)
 ![](https://i.imgur.com/7H01SFh.jpeg)
